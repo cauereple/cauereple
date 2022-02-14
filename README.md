@@ -1,4 +1,4 @@
-## 🇻🇬 Hi, I'm Cauê Rizzo Reple, computer science student!
+## 🇻🇬 Hi, I'm Cauê Rizzo Reple, a computer science student!
 🇧🇷 Olá!
 🇮🇹 Ciao!
 
